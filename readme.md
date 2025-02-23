@@ -1,1 +1,1 @@
-This is my personal blog. Feel free to visit :)
+This is my portfolio. Feel free to visit :)
